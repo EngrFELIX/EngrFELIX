@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EngrFELIX
 - 👀 I’m interested in Backend Development
 - 🌱 I’m currently helping in KosaRemy Foundation to Impact Lives through strategic teachings and giftings
-- 💞️ I’m looking to collaborate on with you on my I.T WORLD
+- 💞️ I’m looking to collaborate with you in Tech World and Humaniterial Services
 - 📫 How to reach melyxrox@gmail.com; oyanoghafofelix5@gmail.com
 08097044370
 <!---
