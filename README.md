@@ -8,3 +8,4 @@
 EngrFELIX/EngrFELIX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Additionally, I possess the ability to relocate both within and outside Nigeria for any new opportunities that may arise.
